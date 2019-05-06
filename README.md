@@ -3,6 +3,6 @@
 
 Kiss my shiny metal ass!
 
-hahaha
+I'm way greater that you might think!
 
 Ohohoh
