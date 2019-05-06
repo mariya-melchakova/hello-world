@@ -3,7 +3,7 @@
 
 Kiss my shiny metal ass!
 
-I'm way greater that you might think!
+This is the line that conflicts with local changes.
 
 This is a new line.
 
